@@ -1,0 +1,1 @@
+# vkr-digital-science-thinking
